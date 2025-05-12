@@ -1,5 +1,5 @@
-👋 Hi, I’m @rwin321
+👋 Hi, I’m Ervin (@rwin321) - Senior Software engineer. 
 
 📫 How to reach me:
 
-## rwin321321@gmail.com
+## er.abliamitov@gmail.com
